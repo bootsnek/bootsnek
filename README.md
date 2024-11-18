@@ -1,1 +1,1 @@
-my intrests are golf and martial arts 
+my interests are golf and martial arts 
